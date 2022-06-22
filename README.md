@@ -1,5 +1,5 @@
 - 👋 oi, eu sou @manusena460
-- 👀 eu me interesso por jogos, leitura
+- 👀 eu me interesso por jogos, leitura, natureza
 - 🌱 estou estudando css
 - 💞️ estou proucurando colaborar em 
 - 📫 voce pode me encontrar em @
