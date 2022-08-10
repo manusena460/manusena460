@@ -10,3 +10,4 @@ You can click the Preview link to take a look at your changes.
 --->
 ￼voce pode me encontrar em @
 Personalize seus pinos
+file:///home/escola/%C3%81rea%20de%20Trabalho/library%20coffe%20tancredo-1.b%20teteus%20e%20manu/Index.html
